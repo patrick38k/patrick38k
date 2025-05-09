@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning developing 
 - 💞️ I’m looking to collaborate on coding
-- 📫 Reach my by mail
+- 📫 Reach me by mail
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
